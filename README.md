@@ -2,7 +2,7 @@
 - 👀 I’m interested in play computrue
 - 🌱 I’m currently learning pwn and revers
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me emial :755699068@qq.com
+- 📫 How to reach me emial no way
 so fk u bro!
 <!---
 fu9k/fu9k is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
